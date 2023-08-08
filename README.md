@@ -1,0 +1,1 @@
+i'm gonna finish the odin project by the end of this year, hopefully i'll by the beginning of 2024 i'll find a web dev job if things didn't work out my way.
